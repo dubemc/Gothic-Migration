@@ -1,3 +1,5 @@
+## [Summary](https://dubemc.github.io/gothic.github.io/index.md) - [Analysis](https://dubemc.github.io/DubeCapstone2019/data.md) - [Reaction](https://dubemc.github.io/DubeCapstone2019/calculate.md) - [Maps](https://dubemc.github.io/DubeCapstone2019/resources.md) - [Process Memo](https://dubemc.github.io/DubeCapstone2019/contact.md)
+
 ## The Migration of Gothic Culture and Fashion
 
   As someone who delved into the culture around 13 years old, I thank my aunt for introducing me to gothic culture, as she has been goth since its peak in the 1980s. Through the 7 years of being goth, I know the music, the fashion, the religion aspects, the political beliefs, and the overall message that goths convey. My story is linked to this topic, obviously, due to the way I convey myself and my beliefs; my entire closet, room, and altar are designed specifically dark, witchy, and cohesive. However, I specifically do not know how gothic culture was spread throughout the world during its start, and I want to connect it to how the culture gained popularity again due to the media being consumed.
