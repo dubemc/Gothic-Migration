@@ -1,4 +1,4 @@
-## [Summary](https://dubemc.github.io/Gothic-Migration/summary.md) - [Analysis](https://dubemc.github.io/DubeCapstone2019/data.md) - [Reaction](https://dubemc.github.io/DubeCapstone2019/calculate.md) - [Maps](https://dubemc.github.io/DubeCapstone2019/resources.md) - [Process Memo](https://dubemc.github.io/DubeCapstone2019/contact.md)
+## [Summary](https://dubemc.github.io/Gothic-Migration/) - [Analysis](https://dubemc.github.io/Gothic-Migration/) - [Reaction](https://dubemc.github.io/Gothic-Migration/) - [Maps](https://dubemc.github.io/Gothic-Migration/) - [Process Memo](https://dubemc.github.io/Gothic-Migration/)
 
 ## The Migration of Gothic Culture and Fashion
 
